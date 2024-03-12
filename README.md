@@ -1,0 +1,1 @@
+First you have to connect with metamsk and connect with the contrat ensure that you have connect with contract one console to check and lastly in add to cart you have to click on the pay button sometime you have to click once and wait for some time and sometimes you will click on 2 times so metamsk window will open
